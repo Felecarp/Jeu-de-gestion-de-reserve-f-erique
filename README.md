@@ -26,3 +26,7 @@ Et éléver des créatures afin de pouvoir agrandir sa réserve et acceuillir de
 # USP
 - immense diversité de créatures féeriques
 - une multitude de mini-évènements à choix multiples (à la Sims)
+# Votre participation
+Si vous repérez des erreurs que ce soit au niveau de l'orthographe, du vocaulairez utilisé ou si des passages semblent un peu flous n'hésitez pas à commenter ou à proposer votre version .
+
+Merci de m'avoir lu .
